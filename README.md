@@ -1,6 +1,6 @@
 <img width="600" height="200" alt="IMG_2955" src="https://github.com/user-attachments/assets/6683d3ff-7d48-4d88-b1d2-f3e7fe488ef1" />
 
-why, hello! my name is nyctrilite! (or starspekz lol)
+why, hello! my name is nyctrilite! (not really starspekz lol) ★ you can call me Vexkunz, Picklesplitz, Blitz, or Verity
 
 <img width="466" height="429" alt="IMG_2951" src="https://github.com/user-attachments/assets/9e229798-2a5c-44f3-be84-9be5260bce35" />
 
