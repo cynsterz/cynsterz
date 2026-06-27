@@ -2,7 +2,7 @@
 
 why, hello! my name is nyctrilite! (or starspekz lol)
 
-<img width="736" height="736" alt="Unknown 8" src="https://github.com/user-attachments/assets/164ee939-6245-4cca-9af9-9fc6c3c8f18c" />
+<img width="540" height="540" alt="IMG_0796" src="https://github.com/user-attachments/assets/8be83544-c4f6-403b-b253-a786b9b6679e" />
 
 I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
 🌙 dni if u have a problem with me i do not want to start any chaos.
