@@ -8,7 +8,7 @@ why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blit
 
 <img width="74" height="18" alt="IMG_4088" src="https://github.com/user-attachments/assets/ddf3cec8-3dc5-4a27-8311-ca45dabcc346" /> <img width="74" height="18" alt="IMG_4090" src="https://github.com/user-attachments/assets/8e89da86-97e9-4ae8-8b4c-0cfedd5c31af" /> <img width="74" height="18" alt="IMG_4089" src="https://github.com/user-attachments/assets/2bb62b0e-f920-4eaa-a5ac-794384bcaf7c" />
 
-<img width="2048" height="1536" alt="IMG_3327" src="https://github.com/user-attachments/assets/b313beb1-52c7-42c0-8536-1b28f572e003" />
+<img width="540" height="549" alt="IMG_4180" src="https://github.com/user-attachments/assets/479ac587-495c-4033-8bd5-e9dc499beae9" />
 
 <img width="400" height="228" alt="IMG_3165" src="https://github.com/user-attachments/assets/bd0898c2-bf11-48f5-8d1f-deaf6f176986" />
 
