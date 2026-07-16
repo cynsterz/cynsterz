@@ -2,8 +2,6 @@
 
 <img width="99" height="56" alt="IMG_4095" src="https://github.com/user-attachments/assets/952cbdb1-9eeb-4c01-8796-718ce2fe4762" />
 
-<img width="1280" height="1280" alt="IMG_4179" src="https://github.com/user-attachments/assets/588e9dc5-73fa-4adc-9b9c-78b8faf858d4" />
-
 why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blitz, or Arc !!! sometimes I'll switch between Three and Cyn but mostly I'll stick to Three <3
 
 <img width="400" height="228" alt="IMG_3169" src="https://github.com/user-attachments/assets/9c734517-228c-4f20-bec0-a7198d73d3cb" />
