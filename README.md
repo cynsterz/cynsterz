@@ -8,11 +8,9 @@ why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blit
 
 <img width="74" height="18" alt="IMG_4088" src="https://github.com/user-attachments/assets/ddf3cec8-3dc5-4a27-8311-ca45dabcc346" /> <img width="74" height="18" alt="IMG_4090" src="https://github.com/user-attachments/assets/8e89da86-97e9-4ae8-8b4c-0cfedd5c31af" /> <img width="74" height="18" alt="IMG_4089" src="https://github.com/user-attachments/assets/2bb62b0e-f920-4eaa-a5ac-794384bcaf7c" />
 
-<img width="540" height="549" alt="IMG_4180" src="https://github.com/user-attachments/assets/479ac587-495c-4033-8bd5-e9dc499beae9" />
-
+<img width="1215" height="66" alt="IMG_4020" src="https://github.com/user-attachments/assets/a7e26d45-c550-47c8-b547-b6b03f6c4982" />
 
 I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
 📕 dni if u have a problem with me i do not want to start any chaos.
-
 
 <img width="977" height="282" alt="IMG_4102" src="https://github.com/user-attachments/assets/d1f32bf4-3a25-432e-86ea-86d7c864b620" />
