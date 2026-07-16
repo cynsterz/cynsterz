@@ -2,7 +2,7 @@
 
 <img width="99" height="56" alt="IMG_4095" src="https://github.com/user-attachments/assets/952cbdb1-9eeb-4c01-8796-718ce2fe4762" /> <img width="99" height="56" alt="IMG_4096" src="https://github.com/user-attachments/assets/04481339-577d-4462-b454-b3c2c7131b97" /> <img width="99" height="56" alt="IMG_4097" src="https://github.com/user-attachments/assets/45e3a9da-9dc1-43ca-9bab-fd073d0f68fa" /> <img width="100" height="60" alt="IMG_2334" src="https://github.com/user-attachments/assets/c490918c-9460-4d76-a9e3-5eb7cd5c2775" /> <img width="100" height="60" alt="IMG_2335" src="https://github.com/user-attachments/assets/84a06380-2340-46da-82c8-cd0c1b03bb0f" /> <img width="100" height="60" alt="IMG_2337" src="https://github.com/user-attachments/assets/bdb89021-6025-4772-bac7-a82d6b83ea93" /> <img width="100" height="60" alt="IMG_2339" src="https://github.com/user-attachments/assets/9eba79ab-9148-4b5b-b608-c872eb779d77" />
 
-why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blitz, or Arc !!! sometimes I'll switch between Three and Cyn but mostly I'll stick to Three <3
+𝙽𝚊𝚖𝚎’𝚜 𝙸𝚗𝚍𝚒𝚐𝚘 | 𝚂𝚑𝚎/𝚃𝚑𝚎𝚢/𝙷𝚎 𝙼𝚒𝚗𝚘𝚛 𝙰𝚗𝚒𝚖𝚊𝚝𝚘𝚛, 𝙰𝚛𝚝𝚒𝚜𝚝, 𝚆𝚛𝚒𝚝𝚎𝚛 | 𝙸𝚗 𝚕𝚘𝚝𝚜 𝚘𝚏 𝚏𝚊𝚗𝚍𝚘𝚖𝚜+𝚊𝚞𝚜
 
 <img width="730" height="99" alt="IMG_4091" src="https://github.com/user-attachments/assets/d640133f-7b69-4887-a7ee-18137d78c9b4" />
 
@@ -12,7 +12,7 @@ why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blit
 
 <img width="730" height="99" alt="IMG_4092" src="https://github.com/user-attachments/assets/77fdd6dc-cc35-43db-b7c4-8563bf14daa2" />
 
-I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
-📕 dni if u have a problem with me i do not want to start any chaos.
+𝙸 𝚍𝚘 𝚗𝚘𝚝 𝚜𝚞𝚙𝚙𝚘𝚛𝚝 𝚊 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚙𝚎𝚛𝚜𝚘𝚗 𝚒𝚏 𝚒 𝚏𝚘𝚕𝚕𝚘𝚠 𝚝𝚑𝚎𝚖 𝚘𝚗 𝚐𝚒𝚝𝚑𝚞𝚋 𝚊𝚜 𝚠𝚎𝚕𝚕 𝚊𝚜 𝚊 𝚍𝟺𝚛𝚔 𝚘𝚛 𝚙𝚛𝟶 𝚜𝚑𝟷𝚑𝟹𝚙𝚙𝚎𝚛𝚜.
+🌘 𝚍𝚗𝚒 𝚒𝚏 𝚞 𝚑𝚊𝚟𝚎 𝚊 𝚙𝚛𝚘𝚋𝚕𝚎𝚖 𝚠𝚒𝚝𝚑 𝚖𝚎 𝚒 𝚍𝚘 𝚗𝚘𝚝 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚜𝚝𝚊𝚛𝚝 𝚊𝚗𝚢 𝚌𝚑𝚊𝚘𝚜.
 
 <img width="977" height="282" alt="IMG_4102" src="https://github.com/user-attachments/assets/d1f32bf4-3a25-432e-86ea-86d7c864b620" />
